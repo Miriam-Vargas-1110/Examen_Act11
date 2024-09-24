@@ -9,6 +9,7 @@ examen de unidad 1
 - Resultado
 
 ![image](https://github.com/user-attachments/assets/1ae67858-cd7a-4653-9400-7eb8fa927db4)
+![image](https://github.com/user-attachments/assets/50281141-4a2f-48ad-b103-cab6ea3cbaab)
 
 
 
